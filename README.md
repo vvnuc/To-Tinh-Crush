@@ -1,4 +1,4 @@
-# Tặng Crush
-## _Một điều nho nhỏ tỏ tình với crush_
+# Tặng Người Yêu
+## _Một điều nho nhỏ tặng cho người yêu_
 
 
